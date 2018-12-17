@@ -1,4 +1,5 @@
 శ్రీరస్తు శుభమస్తు జై శ్రీ రామ జై దుర్గమల్లేశ్వర ఓం నమః శివాయ ఓం నమో నారాయణాయ  
+धर्मो रक्षति रक्षितः కృషితో నాస్తి దుర్భిక్షం  
   
 # Story Books:  
 http://www.talesofpanchatantra.com/short-stories-for-kids  
