@@ -209,3 +209,66 @@ prathikaram nunchi dukkamu
 పైన ఉండే వాడు అంటే గౌరవం లేదు 
 పక్కన ఉండే వాడు అంటే లెక్క లేదు 
 ```  
+  
+## Chatrapathi Lyrics  
+```Original
+Agni Skalana
+Sandhaghdharipu
+Varga Pralya Radha Chatrapathi!
+Madhyamdhina
+Samudhyath Kirana
+Vidyuddhumani Khani Chatrapathi!
+Thajjem Thajjenu
+Thadhim Dhirana
+Dhim Dhim Thakita Nata Chatrapathi!
+Urvii Valaya
+Sambhavyavara
+Swacchanda Gunadhi...!!
+
+Khumbhi Nikara
+Khumbhastha Guru
+Khumbhi Valaya Pathi Chatrapathi!
+Jhanjha Pavana
+Garvapahara
+Vindhyadri Samadruthi Chatrapathi!
+Chanda Prabala
+Doardhandajitha
+Dhurdhanda Bhata Tathi Chatrapathi!
+Shatru Prakara
+Vicchedakara
+Bheema Arjuna Prathi...!!
+
+Khumbhi Nikara
+Khumbhastha Guru
+Khumbhi Valaya Pathi Chatrapathi!
+Jhanjha Pavana
+Garvapahara
+Vindhyadri Samadruthi Chatrapathi!
+Chanda Prabala
+Doardhandajitha
+Dhurdhanda Bhata Tathi Chatrapathi!
+Shatru Prakara
+Vicchedakara
+Bheema Arjuna Prathi...!!
+
+Dhig Dhig Vijaya
+Dhanka Ninada
+Ghantarava Tusshhitha Chatrpathi!
+Sangha Svajana
+Vidrohi Gana
+Vidhwamsa Vratamati Chatrapathi!
+Aarthatrana
+Dhustadhyumna
+Kshaatra Spuurthi
+Dhidhiti,
+Bheemakshmapathi,
+Shiksha Smruthi
+Sthapathi...!!!
+```
+  
+```meaning for frist four lines
+Like how he is compared to fire which destructs everything
+Like the falling rays of sun in noon
+Like how he is a weapon taken from the heaven to earth 
+Like how he is a man of powerful qualities..
+```
