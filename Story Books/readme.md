@@ -184,7 +184,19 @@ even though he had the same bow and arrow (which he used in war).
 పొలాలనన్ని హలాలు  దున్ని, ఇలాతలంలో హేమము పిండగ 
 జగానికంతా  సువక్యం నిండగా, విరామమెరుగక పరిస్యమించే బలం ధరిత్రికి  బలికావించే
 కార్ష్యగా వీరుల కాయం నిండా కాలువ కట్టే కర్మ జలానికి, కర్మ జలానికి ధర్మ జలానికి ఖరీదు లేడోయ్ 
-```  
+``` 
+
+### Few words on the timelyness and power of words
+```Poem
+eppati keyyadi prastuta
+mappati kaa maatalaadi, anyula manamul
+noppimpaka, taa novvaka,
+tappimchuka tirugu vaadu dhanyuDu sumatee
+
+He is blessed, who talks relevantly and precisely.
+This will not cause mental disturbance to others,and also does not 
+result in mental stress to self.
+```
   
 ## Cycle of Sadness  
 ```Poem
