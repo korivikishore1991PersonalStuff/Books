@@ -237,7 +237,7 @@ Vana-durga (Forest fort): Surrounded by a dense forest over a distance of at lea
 Mahi-durga (Earthen fort)  
     1.Mrid-durga: surrounded by earthen walls  
     2.Parigha-durga: Surrounded by earthen walls, as well as stone or brick walls. The walls are at least 5.4 m high and their width is half of their height.  
-    1.Panka-durga: Surrounded by fens or quicksand  
+    3.Panka-durga: Surrounded by fens or quicksand  
 Nri-durga (Human fort)  
     1.Defended by a large number of loyal and experienced warriors. Usually a city fortress, populated by a substantial garrison.  
     
