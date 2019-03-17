@@ -224,22 +224,22 @@ prathikaram nunchi dukkamu
   
 ## Types of Ancient Indian Forts according to Arthashastra  
 Jala-durga (Water fort)  
-    Antardvipa-durga (island fortress): surrounded by natural (sea or river) water bodies. E.g. Murud-Janjira.  
-    Sthala-durga (plain fortress): surrounded by artificial moats or irrigated by a river.egDeeg Fort, Lohagarh Fort  
+    1.Antardvipa-durga (island fortress): surrounded by natural (sea or river) water bodies. E.g. Murud-Janjira.  
+    2.Sthala-durga (plain fortress): surrounded by artificial moats or irrigated by a river.egDeeg Fort, Lohagarh Fort  
 Dhanvana- or Maru-durga (Desert Fort): Surrounded by an arid area of at least 5 yojanas (73 km).  
 Giri-durga (Hill fort)  
-    Prantara-durga: Located on a flat hill summit. E.g. medieval forts such as Chittor, Gwalior and Ranthambore.  
-    Giri-parshva-durga: The fortifications and civilian structures extend down to the hill slope (not just the summit).  
-    Guha-durga: Located in a valley surrounded by hills, where the outposts and the signal towers are located.  
+    1.Prantara-durga: Located on a flat hill summit. E.g. medieval forts such as Chittor, Gwalior and Ranthambore.  
+    2.Giri-parshva-durga: The fortifications and civilian structures extend down to the hill slope (not just the summit).  
+    3.Guha-durga: Located in a valley surrounded by hills, where the outposts and the signal towers are located.  
 Vana-durga (Forest fort): Surrounded by a dense forest over a distance of at least 4 kroshas (14.6 km).  
-    Khanjana-durga, built on a fen surrounded by thorny forests.  
-    Sthambha-durga, built in the forest among tall trees; lacks sufficient water sources.  
+    1.Khanjana-durga, built on a fen surrounded by thorny forests.  
+    2.Sthambha-durga, built in the forest among tall trees; lacks sufficient water sources.  
 Mahi-durga (Earthen fort)  
-    Mrid-durga: surrounded by earthen walls  
-    Parigha-durga: Surrounded by earthen walls, as well as stone or brick walls. The walls are at least 5.4 m high and their width is half of their height.  
-    Panka-durga: Surrounded by fens or quicksand  
+    1.Mrid-durga: surrounded by earthen walls  
+    2.Parigha-durga: Surrounded by earthen walls, as well as stone or brick walls. The walls are at least 5.4 m high and their width is half of their height.  
+    1.Panka-durga: Surrounded by fens or quicksand  
 Nri-durga (Human fort)  
-    Defended by a large number of loyal and experienced warriors. Usually a city fortress, populated by a substantial garrison.  
+    1.Defended by a large number of loyal and experienced warriors. Usually a city fortress, populated by a substantial garrison.  
     
   
 ## Chatrapathi Lyrics  
