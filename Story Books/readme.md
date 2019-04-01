@@ -376,3 +376,22 @@ vaijayiki vidya: gaining victory.
 vaitaliki vidya: awakening master with music at dawn.
 ```
   
+  
+## Durga Weapons
+<p align="center">
+  <img src="https://drive.google.com/uc?export=view&id=165d03DQ5-G7ot9ZMLElSV4kWk2_thGsc" width="650"/>
+</p>
+```meaning
+1 - Shankha (Conch Shell)
+2 - Chakram (discus)
+3 - Gada (mace)
+4 - Scimitar (khatga)
+5 - Trishula (trident)
+6 - Parashu (axe)
+7 - Dhanu (bow/arrow)
+8 - Khurki (sword)
+9 - Naga (snake)
+10 - Ankusha (goad)
+11 - Pasha (noose)
+12 - Khetaka (shield)
+```
