@@ -380,7 +380,7 @@ vaitaliki vidya: awakening master with music at dawn.
 ## Durga Weapons
 <p align="center">
   <img src="https://drive.google.com/uc?export=view&id=165d03DQ5-G7ot9ZMLElSV4kWk2_thGsc" width="650"/>
-</p>
+</p>  
 ```meaning
 1 - Shankha (Conch Shell)
 2 - Chakram (discus)
