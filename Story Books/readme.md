@@ -179,12 +179,18 @@ Arjun was looted by thugs(Kabe refers to a particular tribe)
 even though he had the same bow and arrow (which he used in war). 
 ```
   
-## Few words on Farmers  
+## Sri Sri, మహా ప్రస్థానం Maha Prasthanam  
+### Few words on Farmers  
 ```Poem
 పొలాలనన్ని హలాలు  దున్ని, ఇలాతలంలో హేమము పిండగ 
 జగానికంతా  సువక్యం నిండగా, విరామమెరుగక పరిస్యమించే బలం ధరిత్రికి  బలికావించే
 కార్ష్యగా వీరుల కాయం నిండా కాలువ కట్టే కర్మ జలానికి, కర్మ జలానికి ధర్మ జలానికి ఖరీదు లేడోయ్ 
-``` 
+```   
+### Few words on Failure and success  
+```Poem
+Nippulu chimmukuntu ningiki ne yegiripothe nibidascharyam tho veeru, 
+Nethuru kakkukuntu nelaku ne ralipothe nirdakshinyam ga veere!!
+```  
 
 ### Few words on the timelyness and power of words
 ```Poem
