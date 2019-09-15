@@ -221,6 +221,9 @@ prathikaram nunchi dukkamu
  samthrupthi nunchi santhosyamu
  ```
   
+## Few words on Death  
+tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.  
+
 ## Attitude towards cooperates  
 ```Telugu
 కింద ఉండే వాడు అంటే భయం లేదు 
