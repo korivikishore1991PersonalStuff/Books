@@ -315,9 +315,9 @@ Like how he is a man of powerful qualities..
 ```  
   
 ## Telugu flokore songs types  
-Shrimad rama ramana govido ha (Hari Katha  
-Bhala Bhali thamuda melu bali ra tha na na(Pitta katha  
-ichata puttina kundelu kukalanu dikaricha ranna. Ayya venara Andhra vera kumura vera vera gadha thatala thamara tham thriki ta thri tht thri tham thri kita thom(Burra Katha  
+Shrimad rama ramana govido ha (Hari Katha)  
+Bhala Bhali thamuda melu bali ra tha na na(Pitta katha)  
+ichata puttina kundelu kukalanu dikaricha ranna. Ayya venara Andhra vera kumura vera vera gadha thatala thamara tham thriki ta thri tht thri tham thri kita thom(Burra Katha)  
   
 ## 64 Kalas or arts  
 Kalā means performing art in Sanskrit.  
