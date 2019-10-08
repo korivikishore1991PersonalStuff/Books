@@ -191,6 +191,12 @@ even though he had the same bow and arrow (which he used in war).
 Nippulu chimmukuntu ningiki ne yegiripothe nibidascharyam tho veeru, 
 Nethuru kakkukuntu nelaku ne ralipothe nirdakshinyam ga veere!!
 ```  
+```quote
+First they ignore you, 
+then they laugh at you, 
+then they fight you, 
+then you win
+```
 
 ### Few words on the timelyness and power of words
 ```Poem
@@ -408,3 +414,12 @@ vaitaliki vidya: awakening master with music at dawn.
 11 - Pasha (noose)
 12 - Khetaka (shield)
 ```
+  
+ ## Pillars of Morality and Humanity   
+ ### Morality  
+ Reciprocity(Sense of Fairness)  
+ Empathy(Sense of Compassion)  
+ ### Humanity  
+ ability to feel the present  
+ vivid sense of memory  
+ fantastic sense of imagination  
