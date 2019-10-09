@@ -418,7 +418,7 @@ vaitaliki vidya: awakening master with music at dawn.
  ## Pillars of Morality and Humanity   
  ### Morality  
  Reciprocity(Sense of Fairness)  
- Empathy(Sense of Compassion)  
+ Empathy{Basic Empathy(feeling with others), Sympathy(feeling for others), Compassion(acting for others)}(Sense of Compassion)  
  ### Humanity  
  ability to feel the present  
  vivid sense of memory  
