@@ -235,6 +235,8 @@ tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.
 కింద ఉండే వాడు అంటే భయం లేదు 
 పైన ఉండే వాడు అంటే గౌరవం లేదు 
 పక్కన ఉండే వాడు అంటే లెక్క లేదు 
+  
+గుంటూరువాడిని కదా మొండితనం కండబలం గుండెబలం పుష్కలంగా ఉన్నాయి    
 ```  
   
 ## Types of Ancient Indian Forts according to Arthashastra  
