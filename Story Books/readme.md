@@ -236,7 +236,9 @@ tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.
 పైన ఉండే వాడు అంటే గౌరవం లేదు 
 పక్కన ఉండే వాడు అంటే లెక్క లేదు 
   
-గుంటూరువాడిని కదా మొండితనం కండబలం గుండెబలం పుష్కలంగా ఉన్నాయి    
+గుంటూరువాడిని కదా మొండితనం కండబలం గుండెబలం పుష్కలంగా ఉన్నాయి 
+
+use it up wear it out make it do or do without
 ```  
   
 ## Types of Ancient Indian Forts according to Arthashastra  
@@ -428,7 +430,12 @@ vaitaliki vidya: awakening master with music at dawn.
    
  ## Surviving Autocracy  
  ```
- Rule #1: Believe the autocrat. He means what he says. Whenever you find yourself thinking, or hear others claiming, that he is exaggerating, that is our innate tendency to reach for a rationalization. This will happen often: humans seem to have evolved to practice denial when confronted publicly with the unacceptable. Back in the 1930s, The New York Times assured its readers that Hitler’s anti-Semitism was all posture. More recently, the same newspaper made a telling choice between two statements made by Putin’s press secretary Dmitry Peskov following a police crackdown on protesters in Moscow: “The police acted mildly—I would have liked them to act more harshly” rather than those protesters’ “liver should have been spread all over the pavement.” Perhaps the journalists could not believe their ears. But they should—both in the Russian case, and in the American one. For all the admiration Trump has expressed for Putin, the two men are very different; if anything, there is even more reason to listen to everything Trump has said. He has no political establishment into which to fold himself following the campaign, and therefore no reason to shed his campaign rhetoric. On the contrary: it is now the establishment that is rushing to accommodate him—from the president, who met with him at the White House on Thursday, to the leaders of the Republican Party, who are discarding their long-held scruples to embrace his radical positions.
+gunam leni vadu kulam godugu padatadu; 
+manavatham leni vadu matham musugu vesthadu; 
+pasa leni vadu prantham vusu yethuthadu; 
+janulu antha oke kutumbam; 
+jagamantha oke nelayam
+Rule #1: Believe the autocrat. He means what he says. Whenever you find yourself thinking, or hear others claiming, that he is exaggerating, that is our innate tendency to reach for a rationalization. This will happen often: humans seem to have evolved to practice denial when confronted publicly with the unacceptable. Back in the 1930s, The New York Times assured its readers that Hitler’s anti-Semitism was all posture. More recently, the same newspaper made a telling choice between two statements made by Putin’s press secretary Dmitry Peskov following a police crackdown on protesters in Moscow: “The police acted mildly—I would have liked them to act more harshly” rather than those protesters’ “liver should have been spread all over the pavement.” Perhaps the journalists could not believe their ears. But they should—both in the Russian case, and in the American one. For all the admiration Trump has expressed for Putin, the two men are very different; if anything, there is even more reason to listen to everything Trump has said. He has no political establishment into which to fold himself following the campaign, and therefore no reason to shed his campaign rhetoric. On the contrary: it is now the establishment that is rushing to accommodate him—from the president, who met with him at the White House on Thursday, to the leaders of the Republican Party, who are discarding their long-held scruples to embrace his radical positions.
 
 He has received the support he needed to win, and the adulation he craves, precisely because of his outrageous threats. Trump rally crowds have chanted “Lock her up!” They, and he, meant every word. If Trump does not go after Hillary Clinton on his first day in office, if he instead focuses, as his acceptance speech indicated he might, on the unifying project of investing in infrastructure (which, not coincidentally, would provide an instant opportunity to reward his cronies and himself), it will be foolish to breathe a sigh of relief. Trump has made his plans clear, and he has made a compact with his voters to carry them out. These plans include not only dismantling legislation such as Obamacare but also doing away with judicial restraint—and, yes, punishing opponents.
 
