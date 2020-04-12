@@ -329,6 +329,21 @@ Shrimad rama ramana govido ha (Hari Katha)
 Bhala Bhali thamuda melu bali ra tha na na(Pitta katha)  
 ichata puttina kundelu kukalanu dikaricha ranna. Ayya venara Andhra vera kumura vera vera gadha thatala thamara tham thriki ta thri tht thri tham thri kita thom(Burra Katha)  
   
+    
+## NavaRasmulu  
+```telugu
+శృంగారం - భావం:రతి
+వీరం - భావం:ఆవేశం
+కరుణ - భావం:దు:ఖం
+అద్భుతం - భావం:ఆశ్చర్యం
+హాస్యం - భావం:నవ్వు
+భయానకం - భావం:భయం
+బీభత్సం - భావం:జుగుప్స
+రౌద్రం - భావం:కోపం
+శాంతం - భావం:ఓర్పు
+```  
+   
+   
 ## 64 Kalas or arts  
 Kalā means performing art in Sanskrit.  
 The mastery over 64 kinds of arts is called chatushashti Kalas. It is believed that shiva along with brothers krishna and balrama who learnt it from their guru sandipani mastered over these 64 arts :  
