@@ -329,7 +329,10 @@ Shrimad rama ramana govido ha (Hari Katha)
 Bhala Bhali thamuda melu bali ra tha na na(Pitta katha)  
 ichata puttina kundelu kukalanu dikaricha ranna. Ayya venara Andhra vera kumura vera vera gadha thatala thamara tham thriki ta thri tht thri tham thri kita thom(Burra Katha)  
   
-    
+## Youtube end notes  
+Please feel free to appriciate the content by clicking the like button.  
+Show some love in the comments.  
+      
 ## NavaRasmulu  
 ```telugu
 శృంగారం - భావం:రతి
