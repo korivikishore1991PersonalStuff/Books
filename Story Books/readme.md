@@ -34,6 +34,8 @@ Your true wealth is your time, freedom and resources.
 7--A king who is eager to win glory must suppress greed as soon as it lifts its head.  
   
 8--A king must welcome the smallest chance to do good to others, without the slightest procrastination.  
+
+9--Always gather info on same issue from 3 different sources in 3 different perspectives, make sure the sources are independent of each other.  
   
 ## Concept of Reporting  
 Narayana, Narada and concept of Journalism:  
@@ -196,8 +198,18 @@ First they ignore you,
 then they laugh at you, 
 then they fight you, 
 then you win
-```
+```  
+  
 
+## Few words on Death  
+tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.  
+  
+## Few words on the march of death  
+```Poem
+యముని మహిషపు లోహ గంటలు మబ్బు చాటున కాడెల్ మన్నాయి
+నరకలోకపు జాగిలంమాలు గొలుసు తెన్చుకు వూకిపడ్డాయ్  
+```  
+  
 ### Few words on the timelyness and power of words
 ```Poem
 eppati keyyadi prastuta
@@ -227,8 +239,6 @@ prathikaram nunchi dukkamu
  samthrupthi nunchi santhosyamu
  ```
   
-## Few words on Death  
-tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.  
 
 ## Attitude towards cooperates  
 ```Telugu
