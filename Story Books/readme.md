@@ -487,3 +487,12 @@ Rule #5: Don’t make compromises. Like Ted Cruz, who made the journey from call
 
 Rule #6: Remember the future. Nothing lasts forever. Donald Trump certainly will not, and Trumpism, to the extent that it is centered on Trump’s persona, will not either. Failure to imagine the future may have lost the Democrats this election. They offered no vision of the future to counterbalance Trump’s all-too-familiar white-populist vision of an imaginary past. They had also long ignored the strange and outdated institutions of American democracy that call out for reform—like the electoral college, which has now cost the Democratic Party two elections in which Republicans won with the minority of the popular vote. That should not be normal. But resistance—stubborn, uncompromising, outraged—should be.
  ```  
+Comments on Jagan Rule:  
+```telugu
+పాత  కథ కాదు, కోడి కాదు కదా కోడి యికను కూడా పీకలేక పొయ్యాడు 
+గాలి లో కత్తులు తిప్పటం.
+విశ్వాససం లేని కుక్క, తెలివి లేని చిత్తకాసిన నక్క,
+మంచానికి పనికి రాణి చెక్క, నీతి లేని లుచ్చా 
+ఒక్క కంట కన్నీరు. మర్రు కంట పన్నీరు. ఒక కంట కాటుక మర్రు కాంత కర్రం
+అన్నదాత కడుపు తంతే కుడు దొరకదు అంతే. కన్నా భూమి కాళ్ళ తంతే నిలువ నీడ దొరకదు అంతే 
+```
