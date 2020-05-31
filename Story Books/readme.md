@@ -48,6 +48,9 @@ physical cognitive social emotional moral spiritual intelligence
 ## Types of Disorders  
 Passive, aggressive, BiPolar Disorder, Obsessive compulsive  
   
+## Knots to know  
+taut line hitch, lasso honda, round turn 2 half hitches, figure 8 loop  
+    
 ## Quality of Ideal wife and husband  
    
 ###   Qualities of a Ideal Wife
