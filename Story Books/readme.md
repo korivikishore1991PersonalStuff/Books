@@ -49,7 +49,7 @@ physical cognitive social emotional moral spiritual intelligence
 Passive, aggressive, BiPolar Disorder, Obsessive compulsive  
   
 ## Knots to know  
-taut line hitch, lasso honda, round turn 2 half hitches, figure 8 loop  
+taut line hitch, lasso honda, round turn 2 half hitches, figure 8 loop, rope ladder hitch,  swiss seat   
     
 ## Quality of Ideal wife and husband  
    
