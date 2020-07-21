@@ -109,6 +109,14 @@ Shatdharmayuktha manadharma Ramana: A man who has these six virtues is the dear 
   
 If you are a man, do you think you can qualify as a perfect husband possessing these six qualities?    
   
+## Path of fools  
+```poem
+ఆకాశంబున నుండి శంభుని శిరం, బందుండి శీతాద్రి, సు
+శ్లోకంబైన హిమాద్రి నుండి భువి, భూలోకంబునందుండి య
+స్తోకాంబోధిఁ, బయోధి నుండి పవనాంథోలోకముం జేరె గం
+గాకూలంకష! పెక్కు భంగులు వివేకభ్రష్ఠ సంపాతముల్! |శా|
+```  
+  
 ## Chanakya Sutra  
 Chanakya Sutra has 572 sutras. These are the first 10 sutras from Chanakya Sutra:  
 ```Poem
