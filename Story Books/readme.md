@@ -117,6 +117,14 @@ If you are a man, do you think you can qualify as a perfect husband possessing t
 గాకూలంకష! పెక్కు భంగులు వివేకభ్రష్ఠ సంపాతముల్! |శా|
 ```  
   
+## Stubborness of fools
+```poem
+తివిరి ఇసుమున తైలమ్ము తీయవచ్చు
+దవిలి మృగతృష్ణలో నీరుత్రాగవచ్చు
+తిరిగి కుందేటికొమ్ము సాధింపవచ్చు
+చేరి మూర్ఖుల మనసు రంజింపరాదు
+```  
+   
 ## Chanakya Sutra  
 Chanakya Sutra has 572 sutras. These are the first 10 sutras from Chanakya Sutra:  
 ```Poem
