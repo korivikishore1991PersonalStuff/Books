@@ -268,6 +268,8 @@ prathikaram nunchi dukkamu
 గుంటూరువాడిని కదా మొండితనం కండబలం గుండెబలం పుష్కలంగా ఉన్నాయి 
 
 use it up wear it out make it do or do without
+
+కసావాది నామిన గొర్రె కి, కామందు వెనకేసుకువచ్చిన కామాత గది కి చివరకు జరిగేది అన్న్యామేర
 ```  
   
 ## Types of Ancient Indian Forts according to Arthashastra  
