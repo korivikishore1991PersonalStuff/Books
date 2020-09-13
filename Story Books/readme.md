@@ -480,6 +480,10 @@ vaitaliki vidya: awakening master with music at dawn.
    
  ## Surviving Autocracy  
  ```
+ప్రశ్నించే వాడిని గుర్తిస్తారు, ఆత్మాభిమానంతో బ్రతికేవాడిని గౌరవిస్తారు
+అడుగులకు మడుగులు వత్తె వాడిని శాసిస్తారు, శాసిస్తుంచే వాడిని బానిస అంటారు 
+
+
 gunam leni vadu kulam godugu padatadu; 
 manavatham leni vadu matham musugu vesthadu; 
 pasa leni vadu prantham vusu yethuthadu; 
