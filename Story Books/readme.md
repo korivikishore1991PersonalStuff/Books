@@ -229,6 +229,10 @@ tholu thhuku idhi, tuthulu thommidi, tussumanuta thadyam.
 యముని మహిషపు లోహ గంటలు మబ్బు చాటున కాడెల్ మన్నాయి
 నరకలోకపు జాగిలంమాలు గొలుసు తెన్చుకు వూకిపడ్డాయ్  
 ```  
+    
+## Bagavath Githa  
+Enemies entering krishna mouth isn't dying but saying arjuna they all (enemies~ relatives of arjuna)get moksha or ultimate good pass from physical world and becomes part of Krishna only if Arjuna do his duty (doing war with Kauravas)    
+  
   
 ### Few words on the timelyness and power of words
 ```Poem
